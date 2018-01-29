@@ -1,2 +1,2 @@
 # ProgramDuhWay
-anx.,dn.kcx
+anx.,dn.kcx as;ksje
